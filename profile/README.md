@@ -1,3 +1,5 @@
+**ts kinda ded on github so see https://git.rtx3080ti0415.qzz.io/me_inc**
+
 # welcom to me inc
 so uhm dis kinda fusion wit boter dog enterpice but stil
 
